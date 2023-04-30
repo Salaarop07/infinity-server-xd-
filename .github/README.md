@@ -5,7 +5,7 @@
 </h2>
 
 <p align="center">
-  <img src="https://github.com/AnonymousX1025/FallenRobot/blob/master/FallenRobot/resources/fglitch.gif">
+  <img src="https://graph.org/file/bbb3844f065b03ebab9a1.jpg">
 </p>
 
 _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [˹ɪɴꜰɪɴɪᴛʏ ꭙ ꝛσʙσᴛ˼ 🫧](https://t.me/infinity_X_music_bot)**_
@@ -25,7 +25,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [˹ɪɴꜰɪɴɪᴛ�
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
-  <img src="https://telegra.ph/file/7bd111132fce009e4605e.jpg">
+  <img src="https://graph.org/file/bbb3844f065b03ebab9a1.jpg">
 </p>
 
 <p align="center">
